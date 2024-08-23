@@ -4,3 +4,4 @@
 -Você pode entrar em contado comigo pelo meu Email: xgustavoxoliveiraxx@gmail.com
 -Moro em SP/ZS
 -Estudo no Domingos Quirino Ferreira coronel
+https://media.tenor.com/My3gK08AOq8AAAAM/quby-quby-sticker.gif
